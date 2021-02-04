@@ -1,1 +1,0 @@
-# rocketseat-nlw-1edicao
